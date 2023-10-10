@@ -1,2 +1,2 @@
 # pbo-post-test-2
-![bill-gates](https://ibb.co/S0gzB7f)
+![10736646](https://github.com/aliefAdityaa/pbo-post-test-2/assets/127508326/0d23bed5-40f5-44d7-8bbb-361ec4dcbb55)
